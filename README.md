@@ -2,7 +2,7 @@
 
 Submitted by: Carlita Coleman
 
-Time spent: 10 hours spent in total
+Time spent: 90 minutes spent in total
 
 ## Summary
 
